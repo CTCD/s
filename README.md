@@ -1,1 +1,1 @@
-# s
+https://edgemobiledownload.chinacloudsites.cn/EdgeDownloader
